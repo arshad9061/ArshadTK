@@ -36,9 +36,9 @@
 
 ### 📫 How to Reach Me
 
-- 📧 Email: yourmail@gmail.com  
-- 💼 [LinkedIn](https://linkedin.com/in/yourprofile)  
-- 💻 [GitHub](https://github.com/yourusername)  
+- 📧 Email:arshadtk767@gmail.com
+- 💼 [LinkedIn](www.linkedin.com/in/arshad-tk-2b1905369)  
+- 💻 [instagram](https://www.instagram.com/ars_ha._dddd?igsh=OGJ5cnNqOWxoemoz)  
 
 ---
 
